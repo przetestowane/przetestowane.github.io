@@ -11,7 +11,7 @@ tag:
 image: 
 ---
 
-# Zamieszanie wokół wyboru selekcjonera. Kadrowicze coraz bardziej zaniepokojeni!
+#Zamieszanie wokół wyboru selekcjonera. Kadrowicze coraz bardziej zaniepokojeni!
 
 19 stycznia mieliśmy poznać nazwisko nowego selekcjonera, ale nic takiego nie nastąpiło. Do meczu z Rosją coraz bliżej, a na najważniejszym stanowisku wciąż wakat. Jak słyszymy, sytuacja coraz bardziej niepokoi reprezentantów Polski!
 
