@@ -15,7 +15,8 @@ image:
 
 19 stycznia mieliśmy poznać nazwisko nowego selekcjonera, ale nic takiego nie nastąpiło. Do meczu z Rosją coraz bliżej, a na najważniejszym stanowisku wciąż wakat. Jak słyszymy, sytuacja coraz bardziej niepokoi reprezentantów Polski!
 
-![](https://v.wpimg.pl/NTEyNTMuYTUkGzhnYg5sIGdDbD0kV2J2MFt0dmJEfGR1AXhjeFo9MmgYKjkkGycnMQsvNycUYCM1Gio6YwUiezYNISYsEitmah8rNTkAPDEhJiEmJBInOiQVYWJ8EHdnJkkrZ3xDf2J1JnhifEB_ZnBKYD49Emwp)_Getty Images / Kirill Kudryavtsev - Pool / Na zdjęciu: Grzegorz Krychowiak_
+![](https://v.wpimg.pl/NTEyNTMuYTUkGzhnYg5sIGdDbD0kV2J2MFt0dmJEfGR1AXhjeFo9MmgYKjkkGycnMQsvNycUYCM1Gio6YwUiezYNISYsEitmah8rNTkAPDEhJiEmJBInOiQVYWJ8EHdnJkkrZ3xDf2J1JnhifEB_ZnBKYD49Emwp)
+_Getty Images / Kirill Kudryavtsev - Pool / Na zdjęciu: Grzegorz Krychowiak_
 
 W środowe popołudnie doszło do zebrania zarządu PZPN, na którym omawiano kilka ważnych kwestii, ale... nie tę, którą żyje cała Polska.
 
@@ -25,7 +26,8 @@ Po spotkaniu szefostwa związku, PZPN wydał krótki komunikat, w którym poinfo
 
 O co w tym wszystkim chodzi? Zastanawiają się nad tym kibice, dziennikarze i piłkarze reprezentacji Polski.
 
-![](https://v.wpimg.pl/NzA3Mi5qYRsgUTtaGgpsDmMJbwpFGREJJx4qCFkdKwg4EWFLQFN0WG5DJQZBHj1VdwJ0WgMQf00lUnRbDUYRQnIGdF4FRnxUK0MqS0g=)_Kadrowicze wciąż nie znają nazwiska nowego selekcjonera_
+![](https://v.wpimg.pl/NzA3Mi5qYRsgUTtaGgpsDmMJbwpFGREJJx4qCFkdKwg4EWFLQFN0WG5DJQZBHj1VdwJ0WgMQf00lUnRbDUYRQnIGdF4FRnxUK0MqS0g=)
+_Kadrowicze wciąż nie znają nazwiska nowego selekcjonera_
 
 **Wielu piłkarzy jest zdziwionych**
 
@@ -33,7 +35,8 @@ Jak słyszymy, w ostatnich dniach kadrowicze coraz więcej czasu poświęcają n
 
 Obecna sytuacja coraz mocniej ich dezorientuje, niektórzy reprezentanci dopytują też dziennikarzy, czy ci wiedzą, co się dzieje. Zamieszanie jest tym większe, że, jak informowaliśmy, Adam Nawałka odświeżał już kontakty z niektórymi piłkarzami, niejako zaczynając w ten sposób, choć jeszcze nieformalnie, drugi etap pracy z Polską. Tamte działania tylko upewniły zawodników, że to właśnie z nim będą pracować w kadrze w najbliższej przyszłości.
 
-![](https://v.wpimg.pl/OTAyOS5qYDUgGzlgGgptIGNDbTBFGRAnJ1QoMlkdKiY4W2NxQFN1dm4JJzxBHjx7dBt9MgdIfTJwHS43A0EQZXRPe2oFQ3Z6KwkocUg=)_Adam Nawałka ma uzgodniony kontrakt z PZPN. Pozostaje tylko i aż decyzja prezesa o podpisaniu_
+![](https://v.wpimg.pl/OTAyOS5qYDUgGzlgGgptIGNDbTBFGRAnJ1QoMlkdKiY4W2NxQFN1dm4JJzxBHjx7dBt9MgdIfTJwHS43A0EQZXRPe2oFQ3Z6KwkocUg=)
+_Adam Nawałka ma uzgodniony kontrakt z PZPN. Pozostaje tylko i aż decyzja prezesa o podpisaniu_
 
 **Faworytem piłkarzy wciąż Nawałka**
 
