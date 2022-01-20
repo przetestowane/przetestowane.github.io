@@ -1,3 +1,16 @@
+---
+layout: post
+title: Mój drugi post
+date: 2022-01-20 15:00 +0100
+modified: 
+description: Opis posta
+tag:
+  - porady
+  - nauka
+  - testowanie
+image: 
+---
+
 # Zamieszanie wokół wyboru selekcjonera. Kadrowicze coraz bardziej zaniepokojeni!
 
 19 stycznia mieliśmy poznać nazwisko nowego selekcjonera, ale nic takiego nie nastąpiło. Do meczu z Rosją coraz bliżej, a na najważniejszym stanowisku wciąż wakat. Jak słyszymy, sytuacja coraz bardziej niepokoi reprezentantów Polski!
@@ -12,7 +25,7 @@ Po spotkaniu szefostwa związku, PZPN wydał krótki komunikat, w którym poinfo
 
 O co w tym wszystkim chodzi? Zastanawiają się nad tym kibice, dziennikarze i piłkarze reprezentacji Polski.
 
-![](RackMultipart20220120-4-1kqnxtb_html_e6eafa4e7d503ff9.jpg)_Kadrowicze wciąż nie znają nazwiska nowego selekcjonera_
+![](https://v.wpimg.pl/NzA3Mi5qYRsgUTtaGgpsDmMJbwpFGREJJx4qCFkdKwg4EWFLQFN0WG5DJQZBHj1VdwJ0WgMQf00lUnRbDUYRQnIGdF4FRnxUK0MqS0g=)_Kadrowicze wciąż nie znają nazwiska nowego selekcjonera_
 
 **Wielu piłkarzy jest zdziwionych**
 
@@ -20,7 +33,7 @@ Jak słyszymy, w ostatnich dniach kadrowicze coraz więcej czasu poświęcają n
 
 Obecna sytuacja coraz mocniej ich dezorientuje, niektórzy reprezentanci dopytują też dziennikarzy, czy ci wiedzą, co się dzieje. Zamieszanie jest tym większe, że, jak informowaliśmy, Adam Nawałka odświeżał już kontakty z niektórymi piłkarzami, niejako zaczynając w ten sposób, choć jeszcze nieformalnie, drugi etap pracy z Polską. Tamte działania tylko upewniły zawodników, że to właśnie z nim będą pracować w kadrze w najbliższej przyszłości.
 
-![](RackMultipart20220120-4-1kqnxtb_html_fef6ed0173a890a3.jpg)_Adam Nawałka ma uzgodniony kontrakt z PZPN. Pozostaje tylko i aż decyzja prezesa o podpisaniu_
+![](https://v.wpimg.pl/OTAyOS5qYDUgGzlgGgptIGNDbTBFGRAnJ1QoMlkdKiY4W2NxQFN1dm4JJzxBHjx7dBt9MgdIfTJwHS43A0EQZXRPe2oFQ3Z6KwkocUg=)_Adam Nawałka ma uzgodniony kontrakt z PZPN. Pozostaje tylko i aż decyzja prezesa o podpisaniu_
 
 **Faworytem piłkarzy wciąż Nawałka**
 
