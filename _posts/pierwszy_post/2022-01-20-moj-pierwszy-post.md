@@ -2,7 +2,7 @@
 
 19 stycznia mieliśmy poznać nazwisko nowego selekcjonera, ale nic takiego nie nastąpiło. Do meczu z Rosją coraz bliżej, a na najważniejszym stanowisku wciąż wakat. Jak słyszymy, sytuacja coraz bardziej niepokoi reprezentantów Polski!
 
-![](RackMultipart20220120-4-1kqnxtb_html_a460c3c058db1718.jpg)_Getty Images / Kirill Kudryavtsev - Pool / Na zdjęciu: Grzegorz Krychowiak_
+![](https://v.wpimg.pl/NTEyNTMuYTUkGzhnYg5sIGdDbD0kV2J2MFt0dmJEfGR1AXhjeFo9MmgYKjkkGycnMQsvNycUYCM1Gio6YwUiezYNISYsEitmah8rNTkAPDEhJiEmJBInOiQVYWJ8EHdnJkkrZ3xDf2J1JnhifEB_ZnBKYD49Emwp)_Getty Images / Kirill Kudryavtsev - Pool / Na zdjęciu: Grzegorz Krychowiak_
 
 W środowe popołudnie doszło do zebrania zarządu PZPN, na którym omawiano kilka ważnych kwestii, ale... nie tę, którą żyje cała Polska.
 
