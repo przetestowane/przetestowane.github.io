@@ -10,8 +10,7 @@ tag:
   - testowanie
 image: 
 ---
-
-#Zamieszanie wokół wyboru selekcjonera. Kadrowicze coraz bardziej zaniepokojeni!
+# Zamieszanie wokół wyboru selekcjonera. Kadrowicze coraz bardziej zaniepokojeni
 
 19 stycznia mieliśmy poznać nazwisko nowego selekcjonera, ale nic takiego nie nastąpiło. Do meczu z Rosją coraz bliżej, a na najważniejszym stanowisku wciąż wakat. Jak słyszymy, sytuacja coraz bardziej niepokoi reprezentantów Polski!
 
@@ -29,7 +28,7 @@ O co w tym wszystkim chodzi? Zastanawiają się nad tym kibice, dziennikarze i p
 ![](https://v.wpimg.pl/NzA3Mi5qYRsgUTtaGgpsDmMJbwpFGREJJx4qCFkdKwg4EWFLQFN0WG5DJQZBHj1VdwJ0WgMQf00lUnRbDUYRQnIGdF4FRnxUK0MqS0g=)
 _Kadrowicze wciąż nie znają nazwiska nowego selekcjonera_
 
-**Wielu piłkarzy jest zdziwionych**
+## Wielu piłkarzy jest zdziwionych
 
 Jak słyszymy, w ostatnich dniach kadrowicze coraz więcej czasu poświęcają na rozmowy między sobą właśnie na ten temat. Wielu z nich jest zdziwionych, że wybór selekcjonera jeszcze nie nastąpił, bo, podobnie jak inni przyglądający się sprawie, mieli nadzieję, że ta kwestia, ze względu na uciekający czas, rozstrzygnie się jak najszybciej.
 
@@ -38,7 +37,7 @@ Obecna sytuacja coraz mocniej ich dezorientuje, niektórzy reprezentanci dopytuj
 ![](https://v.wpimg.pl/OTAyOS5qYDUgGzlgGgptIGNDbTBFGRAnJ1QoMlkdKiY4W2NxQFN1dm4JJzxBHjx7dBt9MgdIfTJwHS43A0EQZXRPe2oFQ3Z6KwkocUg=)
 _Adam Nawałka ma uzgodniony kontrakt z PZPN. Pozostaje tylko i aż decyzja prezesa o podpisaniu_
 
-**Faworytem piłkarzy wciąż Nawałka**
+### Faworytem piłkarzy wciąż Nawałka
 
 I to właśnie Nawałka pozostaje faworytem, jeśli chodzi o naszych kadrowiczów. Wprawdzie, co oczywiste, wyboru dokona prezes PZPN, ale gdyby Kulesza zapytał o zdanie piłkarzy, to większość z nich zdecydowanie wskazałaby na Nawałkę. Chodzi oczywiście o spojrzenie &quot;na tu i teraz&quot;, czyli mecz barażowy z Rosją. Nikt z potencjalnych kandydatów nie zna polskiej szatni i rzeczywistości tak dobrze jak właśnie były selekcjoner.
 
